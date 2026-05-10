@@ -21,6 +21,3 @@
     int: g&b fandom/fans, bloodytea / teabiscuts shippers, hacker cosplayers (c00lkidd non forsaken, ect.)
     
                      [rentry](https://rentry.co/ancientwounds)  [atabook](https://bloodytea.atabook.org)  [straw](https://bloodyteabiscuts.straw.page)
-
-
-               [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jqi4ggf3dxjk4qpg6p4deelgim&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=881616&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
