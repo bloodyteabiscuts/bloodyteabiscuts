@@ -14,10 +14,10 @@
          ![](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/shinybuttons/hater)   ![](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/shinybuttons/hated)   ![](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/shinybuttons/strange)   ![](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/shinybuttons/iskullmyself)   ![](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/shinybuttons/invisible)
 
 
-dni: 19+ unless ik u, 13-, proship/profict, darkship, comshippers, people who harass kinners, *majority* of IRLs.
+ dni: 19+ unless friend, -13, proship/profict, darkship, comshippers, people who harass kinners, *most* IRLs.
 
- iwc: dandy's world fandom,  roblox cosplayers (forsaken, admins, anything bad).
+  iwc: dandy's world fandom,  roblox cosplayers (forsaken, admins, anything bad).
 
-int: g&b fandom/fans, bloodytea / teabiscuts shippers, hacker cosplayers (c00lkidd non forsaken, ect.)
+ int: g&b fandom/fans, bloodytea / teabiscuts shippers, hacker cosplayers (c00lkidd non forsaken, ect.)
     
                 [rentry](https://rentry.co/ancientwounds) ![](https://file.garden/aXu9FpkcPAJchg9c/Pixels/BW/IMG_5204.png) [atabook](https://bloodytea.atabook.org) ![](https://file.garden/aXu9FpkcPAJchg9c/Pixels/BW/0f85d1f1.gif) [straw](https://bloodyteabiscuts.straw.page)
