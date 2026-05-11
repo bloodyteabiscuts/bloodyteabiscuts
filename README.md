@@ -17,5 +17,8 @@ dni: 19+ unless friend, -13, proship/profict, darkship, comshippers, people who 
 iwc: dandy's world fandom,  roblox cosplayers (forsaken, admins, anything bad).
 
 int: g&b fandom/fans, bloodytea / teabiscuts shippers, hacker cosplayers (c00lkidd non forsaken, ect.)
+
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jqi4ggf3dxjk4qpg6p4deelgim&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=992929&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
     
              [rentry](https://rentry.co/ancientwounds) ![](https://file.garden/aXu9FpkcPAJchg9c/Pixels/BW/IMG_5204.png) [atabook](https://bloodytea.atabook.org) ![](https://file.garden/aXu9FpkcPAJchg9c/Pixels/BW/0f85d1f1.gif) [straw](https://bloodyteabiscuts.straw.page)
