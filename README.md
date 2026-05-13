@@ -19,7 +19,7 @@ iwc: dandy's world fandom, roblox cosplayers (anything bad), **FORSAKEN DEFENDER
 
 int: g&b fandom/fans, bloodytea / teabiscuts shippers, hacker cosplayers (c00lkidd non forsaken, ect.)
 
-[more info here, dont wanna flood](https://rentry.co/roadtosleepyhollows)
+[more info here, dont wanna flood](https://rentry.co/roadtosleepyhollows) wip page, mb
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jqi4ggf3dxjk4qpg6p4deelgim&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=992929&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
