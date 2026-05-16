@@ -6,7 +6,7 @@ innatentive adhd & heavily suspected [SzPD](https://en.wikipedia.org/wiki/Schizo
 
 remake in the process, depends on how i feel
 
-IM LONELY PLS BE MY FRIEND I MIGHT PUSH U AWAY BUT IF U KEEP INTING I WILL  GET USED TO U ok ty also feel free t ask for my discord i hvave i t pls im desepreate for friends u can int always unels my pt name says so ok sorry PLZ FIREND ME THO I NEEEEEED FRIENDS
+feel free 2 int/c+h unless name says so, plz ask first so i dont get spooked ok
 
 [rentry](https://rentry.co/ancientwounds) [atabook](https://bloodytea.atabook.org/) [strawpage](https://bloodyteabiscuts.straw.page/) [prns.page](https://en.pronouns.page/@bloodytea) [prns.cc](https://pronouns.cc/@bloodytea)
 
