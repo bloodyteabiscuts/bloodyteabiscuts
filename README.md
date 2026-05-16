@@ -11,6 +11,8 @@ please don't be weird, I'll block your messages, and i don't like blocking in an
 
 ![](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/shinybuttons/hater)   ![](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/shinybuttons/hated)   ![](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/shinybuttons/strange)   ![](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/shinybuttons/iskullmyself)   ![](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/shinybuttons/invisible)
 
+im prbably offtab/lurking in games or with a friend at the bakery, feel free 2 int 
+
 interests: **g&b**, *baldis basics*, *half-life games*, *portal games*, *tf2*, dandy's world, sewh, pwned by 14:00, roblox args (rcahh, itzkeet, sk8n9livez)
 
 dni: 19+ unless friend, -13, proship/profict, darkship, comshippers, people who harass kinners, *most* IRLs.
