@@ -1,4 +1,4 @@
-mike or tristan. i go by no pronouns, it/its for friends/[followed](https://github.com/roadtosleepyhollow?tab=following) ppl :)
+mike or tristan. i go by no pronouns, he/its for friends/[followed](https://github.com/roadtosleepyhollow?tab=following) ppl :)
 
 i lurk often near/in bakery, docks, or games at docks, dont be shy to say hi ok
 
