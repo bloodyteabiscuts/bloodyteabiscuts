@@ -1,5 +1,4 @@
-mike or tristan. i go by no pronouns, he/its for friends/[followed](https://github.com/roadtosleepyhollow?tab=following) ppl :)
-
+mike or tristan. i go by no pronouns, he/its for friends/followed
 i lurk often near/in bakery, docks, or games at docks, dont be shy to say hi ok
 
 innatentive adhd & heavily suspected [SzPD](https://en.wikipedia.org/wiki/Schizoid_personality_disorder)
